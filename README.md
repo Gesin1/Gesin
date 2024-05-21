@@ -3,7 +3,6 @@
 - I'm always learning, growing, and looking for new challenges. Ready to work free for any business to give my value and at the same time having real life expirence.
 - 🌱 Let's connect and build something amazing! Reach me at
 - 📫 reach me at Gbadegeshinridwan611@gmail.com
-- 
 - 💞️ Thank you..
 
 <!---
